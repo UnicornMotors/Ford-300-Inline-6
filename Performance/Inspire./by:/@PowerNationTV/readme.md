@@ -8,4 +8,4 @@ https://www.youtube.com/@PowerNationTV
 
 ## index:
 - [Ford 300 Inline Six Gets Eye-Popping Off-The-Shelf Power - Engine Power S7, E17](https://youtu.be/N5bnl8knexU)
-- []()
+- [Full-Tilt Build On Our Ford 300 Inline 6 For Serious Power Gains - Engine Power S8, E3](https://youtu.be/bSTxCfuhIAk)
