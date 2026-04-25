@@ -17,3 +17,4 @@ https://www.youtube.com/@enginepowertv
 - [Ultimate Turbo Ford 300: Part 3-NA & Turbo Dyno-Insane Inline 6 Power!](https://youtu.be/LxXlrUwSEpc?list=PLqen7i4i5sRHoiDIW0m64xcYzgUCAsjNR)
 - [Ultimate Turbo Ford 300 Build: Part 2- One of Kind EFI + Next Level Assembly](https://youtu.be/TRyNsGCaxkE?list=PLqen7i4i5sRHoiDIW0m64xcYzgUCAsjNR)
 - [Ultimate Turbo Ford 300 Build: Part 1 - Tearing It Down for Custom Block Mods](https://youtu.be/16kZAUoEq5k?list=PLqen7i4i5sRHoiDIW0m64xcYzgUCAsjNR)
+- [Ultimate Turbo Ford 300: Part 3-NA & Turbo Dyno-Insane Inline 6 Power!](https://youtu.be/LxXlrUwSEpc)
